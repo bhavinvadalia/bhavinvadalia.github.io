@@ -1,2 +1,2 @@
-# bhavinvvadalia.github.io
+# bhavinvadalia.github.io
 Resume
